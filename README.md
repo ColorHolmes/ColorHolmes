@@ -4,5 +4,5 @@
 - 😀 I’m looking to collaborate on gpt taling robot project
 - 📫 How to reach me -> Twitter: fhhha2219, QQ: 985417203, Wechat: fhtxdewechat
 - 🎾 Life is like a tennis match 
-- 💞️ Love-Will-Strong
+- ☀ less is more
 
